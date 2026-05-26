@@ -14,4 +14,4 @@
 
 <img width="1829" height="709" alt="image" src="https://github.com/user-attachments/assets/54eda85b-45fb-4839-ab44-d34689a30658" />
 <img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/d7c1cc0b-a9d3-4f2e-b1f4-760675cb4b1b" />
-
+$${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictkinnie!}$$ »
