@@ -1,3 +1,5 @@
+
+
 <img width="1829" height="709" alt="image" src="https://github.com/user-attachments/assets/c822ac00-2062-474b-b217-7d6b1a2fec99" />
 <img width="1828" height="100" alt="image" src="https://github.com/user-attachments/assets/ffe23679-76cd-4c5d-944a-732aeda1fced" />
 
@@ -15,3 +17,11 @@
 <img width="1829" height="709" alt="image" src="https://github.com/user-attachments/assets/54eda85b-45fb-4839-ab44-d34689a30658" />
 <img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/d7c1cc0b-a9d3-4f2e-b1f4-760675cb4b1b" />
 # creditos: @pixopix on tumblr (4 da bats, coffins, & teeth dividers !)
+
+join my Jojos roleplay server ?
+
+https://discord.gg/7xHx9vByv8  (ദ്ദി˙ᗜ˙)
+
+small reminder: 
+<code style="color:#ff85be "> NO i do not have DID or OSDD, and i do not diagnose myself with any of them. I identify as 'plural', which is just multipe headspaces i have that just identify as others. im not the best at describin' it. just think of it as 'more than one' internally. its my way of coping. 🥖 </code>
+and if this makes you uncomfy or if you just have a problem with it, block me ☺️
